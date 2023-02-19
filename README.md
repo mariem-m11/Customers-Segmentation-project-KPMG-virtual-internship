@@ -1,0 +1,1 @@
+# Customers-Segmentation-project-KPMG-virtual-internship
